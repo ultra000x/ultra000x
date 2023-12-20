@@ -1,4 +1,4 @@
-### Hi there, Ultra_X! 👋
+### Hi there, I'm Ultra_X! 👋
 
 - 🎓 I'm a computer science student passionate about coding and learning new technologies.
 
